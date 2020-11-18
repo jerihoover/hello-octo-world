@@ -17,6 +17,6 @@ I think GitHub seems like the place to be to participate in a community building
 
 Please let me know if I can nerd out with you on topics like time management, communication, management styles, or needs assessments. I'd be happy to!
 
-LLAP,
+Live long and prosper,
 
 Jeri Hoover
